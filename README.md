@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @movickmovick
-- 👀 I’m interested in smelling the scent of a flower.
-- 🌱 I’m currently learning triumph over destination sickness. 
-- 💞️ I’m looking to collaborate on a business.
+- 👀 I’m interested in [Go_(game)](https://en.wikipedia.org/wiki/Go_(game))
+- 🌱 I’m currently learning [Jiu Jitsu](https://en.wikipedia.org/wiki/Brazilian_jiu-jitsu)
+- 💞️ I’m looking to collaborate on modern morse code device.
 - 📫 How to reach me -> mov3152@aol.com || <970.367.6017>
 
 <!---
