@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @movickmovick
 - 👀 I’m interested in electricty, human body. 
-- 🌱 I’m currently learning [Go_(game)](https://en.wikipedia.org/wiki/Go_(game))
-- 💞️ I’m looking to collaborate on fire-builds.
+- 🌱 I’m currently learning [Go_(game)](https://justinthemovie.github.io/), Jiu-jitsu.
+- 💞️ I’m looking to collaborate on real estate.
 - 📫 How to reach me -> mov3152@yahoo.com || <970.367.6017>
 
 <!---
