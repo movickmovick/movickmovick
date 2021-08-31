@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Justin aka @movickmovick
+- 👋 Hi, I’m Justin alias @movickmovick
 - 👀 I’m interested in electricty, human body. 
 - 🌱 I’m currently learning [Go_(game)](https://justinthemovie.github.io/) per Jiu-jitsu *sic*.
 - 💞️ I’m looking to collaborate on real estate.
