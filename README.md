@@ -2,4 +2,4 @@
 - 👀 I’m interested in George Washington’s Mead
 - 🌱 I’m currently learning "Drop an Assumption", "Focus on the Real Truth", etc…
 - 💞️ I’m looking to collaborate on laundromat (Bam!)
-- 📫 How to reach me ->  (970) 367-6017  || movickmovick.github.io
+- 📫 How to reach me ->  (970) 367-6017  || mov3152@yahoo.com
