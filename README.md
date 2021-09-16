@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Movick, alias @movickmovick
-- 👀 I’m interested in George Washington’s Mead
-- 🌱 I’m currently learning "Drop an Assumption", "Focus on the Real Truth", etc…
-- 💞️ I’m looking to collaborate on laundromat (Bam!)
+- 👀 I’m interested in Benzenji dogs.
+- 🌱 I’m currently learning love yourself.
+- 💞️ I’m looking to collaborate on a phone app.
 - 📫 How to reach me ->  (970) 367-6017  || mov3152@yahoo.com
