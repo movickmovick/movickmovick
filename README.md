@@ -1,5 +1,5 @@
-- 👋 Hi, I’m Movick, alias @movickmovick
-- 👀 I’m interested in Benzenji dogs.
-- 🌱 I’m currently learning love yourself.
-- 💞️ I’m looking to collaborate on a phone app.
-- 📫 How to reach me ->  (970) 367-6017  || mov3152@yahoo.com
+- 👋 Hi, I’m justin, alias Justin the Boldness aka Justin Bear effectively Justin the Gustin
+- 👀 I’m interested in the Ocean, ecosystems with respect to currents, electricity, dowsing, etc.
+- 🌱 I’m currently re-learning "Trust, Respect, Loyalty", "Happy, Strong, Healthy", and "Just do it".
+- 💞️ I’m looking to collaborate on a weekly meetup (tug-o-war, L.A.R.P., toll-painting...)
+- 📫 Where to find me ->  fun and active parks, the ones with music creation and beautiful scenery.
