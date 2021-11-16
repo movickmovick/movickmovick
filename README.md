@@ -1,5 +1,5 @@
-- 👋 Hi, I’m justin, alias Kind Chip aka Brilliant Justin effectively Justin the Bit
+- 👋 Hi, I’m justin, alias Kind Chip aka Justinbug effectively Enough Justin
 - 👀 I’m interested in the Ocean, ecosystems with respect to currents, electricity, dowsing, etc.
 - 🌱 I’m currently re-learning "Trust, Respect, Loyalty", "Happy, Strong, Healthy", and "Just do it"
 - 💞️ I’m looking to collaborate on a weekly meetup (tug-o-war, L.A.R.P., toll-painting...)
-- 📫 Where to find me ->  fun and active parks, the ones with music creation and beautiful scenery
+- 🐇 Where to find me -> movickmovick.github.io 
