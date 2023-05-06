@@ -1,5 +1,7 @@
-- 👋 Hi, I’m justin, alias Kind Chip aka Justinbug effectively Enough Justin
-- 👀 I’m interested in the Ocean, ecosystems with respect to currents, electricity, dowsing, etc.
-- 🌱 I’m currently re-learning "Trust, Respect, Loyalty", "Happy, Strong, Healthy", and "Just do it"
-- 💞️ I’m looking to collaborate on a weekly meetup (tug-o-war, L.A.R.P., card-board-games...)
-- 🐇 Where to find me -> movickmovick.github.io 
+- 👋Hi, I'm Justin, also known as Big Justin, Little Brother Justin, or simply Justin. 
+- 👀I'm interested in the art of fire building and how to start them by hand. 
+- 🌱Currently, I'm learning the importance of effective communication, especially when difficulties arise.
+- 💞️I'm looking to collaborate on online Go games, Falun Dafa group, or weekly dinner gatherings.
+- 🐇Please feel free to reach out to me at resilietpathwaysbusiness@gmail.com if you're interested in working together.
+
+Thank you!
